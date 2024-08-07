@@ -2,4 +2,5 @@
 ## descrição
 meu repositorio 
 umas coisas loucas ai
-palmeiras campeon de america
+
+paumeiras venceu em 51... mas o vasco é melhor
