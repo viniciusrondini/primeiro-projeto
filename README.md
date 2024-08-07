@@ -1,3 +1,5 @@
 # primeiro-projeto
 ## descrição
-meu repositorio git
+meu repositorio 
+umas coisas loucas ai
+palmeiras campeon de america
